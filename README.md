@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Agentsgamers
-- 👀 I’m interested in Coding.
-- 🌱 I’m currently learning Lua
+- 🎹 Pianist 🎶
 - 📫 How to reach me:
 
  - Twitter- @Agentsgamers
- - Discord- Agentsgamers#0274
+ - Discord- @Agentsgamers
+ - Roblox @Agentsgamers
 
-(If my discord is outdated then contact me on twitter)
+(If my any of my social usernames is outdated then contact me on twitter.)
